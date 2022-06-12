@@ -1,4 +1,4 @@
-### Vesty [Roblox Phishing Generator]
+### VestyX 1.03 [Roblox Phishing Generator]
 
 [roblox.sx (OP, OFFICIAL, WORKING)](https://roblox.sx/creates/Vesty-Beaming/)
 
