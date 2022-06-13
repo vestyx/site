@@ -9,5 +9,5 @@
 # [Click to go to Controller](https://roblox-app.com/controller/login)
 
 
-### [Join Discord Server](https://discord.gg/hvupMbtc)
+### [Join Discord Server](https://discord.gg/JryHp9AMrf)
 ### [Tutorial](https://www.youtube.com/watch?v=MTk0qlzckIc)
