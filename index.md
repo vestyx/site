@@ -1,4 +1,4 @@
-Vesty X ULTRA | SCROLL DOWN TO SEE ALL THE LINKS
+Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 
 ## roblox.sx (OP, OFFICIAL, WORKING)
 [Click to go to Gen](https://roblox.sx/creates/Vesty-Beaming/)
@@ -23,4 +23,5 @@ Vesty X ULTRA | SCROLL DOWN TO SEE ALL THE LINKS
 
 ## Tutorial and Discord Server
 [Join Discord Server](https://discord.gg/JryHp9AMrf)
+
 [Tutorial](https://www.youtube.com/watch?v=MTk0qlzckIc)
