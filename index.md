@@ -25,3 +25,5 @@ Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 [Join Discord Server](https://discord.gg/JryHp9AMrf)
 
 [Tutorial](https://www.youtube.com/watch?v=MTk0qlzckIc)
+
+! Tutorial Deleted, will upload tomorrow after editing a video !
