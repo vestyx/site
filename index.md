@@ -3,6 +3,8 @@ Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 ## www-roblox.com.ru (OP, OFFICIAL, WORKING) 🟢
 [Click to go to Gen](https://www-roblox.com.ru/creates?id=VestyBeaming)
 
+[Click to go to DualHook Gen](https://www-roblox.com.ru/dual-gen?dir=Vesty-Beaming)
+
 [Click to go to Controller](https://www-roblox.com.ru/controller/)
 
 [Click To Go Discover](https://www-roblox.com.ru/discover/#/)
