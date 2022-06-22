@@ -16,8 +16,8 @@ Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 
 [Click To Go Discover](https://roblox.sx/discover)
 
-## roblox-app.com (OP, OFFICIAL, DOWN) 🔴
-[Click to go to Gen](https://roblox-app.com/creates/Vesty-Beaming)
+## roblox-app.com (OP, OFFICIAL, UP) 🔴
+[Click to go to Gen](https://roblox-app.com/creates/Vesty-Beaming/)
 
 [Click to go to Controller](https://roblox-app.com/controller/login)
 
