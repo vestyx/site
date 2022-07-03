@@ -11,5 +11,3 @@ Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 [Join Discord Server](https://discord.gg/JryHp9AMrf) 🟢
 
 [PSX Bank Stealer](https://www.youtube.com/watch?v=iz9zJCVj-Oo&t=1s) 🟢
-
-! Tutorial Deleted, will upload tomorrow after editing a video !
