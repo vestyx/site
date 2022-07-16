@@ -1,11 +1,11 @@
 Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS !
 
-## roblox.com.ci (OP, OFFICIAL, UP) 🟢
-[Click to go to Gen](https://roblox.com.ci/creates/Vesty-Beaming)
+## roblox7.com (OP, OFFICIAL, UP) 🟢
+[Click to go to Gen](https://roblox7.com/creates/Vesty-Beaming)
 
-[Click to go to Controller](https://roblox.com.ci/controller/login)
+[Click to go to Controller](https://roblox7.com/controller/login)
 
-[Click To Go Discover](https://roblox.com.ci/discovery#/)
+[Click To Go Discover](https://roblox7.com/discovery#/)
 
 ## Tutorial and Discord Server
 [Join Discord Server](https://discord.gg/JryHp9AMrf) 🟢
