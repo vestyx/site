@@ -1,4 +1,4 @@
-Vesty Scripts | Pastebin
+Vesty Scripts | ALL Pastebin
 
 ## Pet Simulator X - Script 🟢
 [Pet Changer](https://pastebin.com/raw/wYDa3VL8)
